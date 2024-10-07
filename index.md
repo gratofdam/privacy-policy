@@ -31,4 +31,4 @@ You have the right to access, update, or delete your personal information at any
 We may update this Privacy Policy from time to time. Any changes will be posted on this page, and we will notify you through the app if there are significant changes. Please review this policy periodically.
 
 ## 7. Contact Us
-If you have any questions or concerns regarding this Privacy Policy, please contact us at [your contact email].
+If you have any questions or concerns regarding this Privacy Policy, please contact us at simon.toftjakobsen@hotmail.com.
